@@ -35,8 +35,6 @@
 
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
 
-@DIRECTOR-WIFIES - fuh you bradar delete your account @MisasLove - I hate you bradar delete your comment @PixelBrickz- delete your videos
-
-- reference guys don't ban me
+@DIRECTOR-WIFIES : hi son @MisasLove hi unc @PixelBrickz : hi unc 
 
 ✦
