@@ -34,5 +34,6 @@
 ...
 
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
+@Directorwifies - fuh you bradar delete your account 
 
 ✦
