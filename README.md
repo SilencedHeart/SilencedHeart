@@ -35,6 +35,6 @@
 
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
 
-@DIRECTOR-WIFIES : hi son @MisasLove hi unc @PixelBrickz : hi unc @jakestuff hi son @pwnedbyskeet hi son 
+@DIRECTOR-WIFIES : hi son @MisasLove hi unc @PixelBrickz : hi unc @jakestuff hi son @pwnedbyskeet hi son @Flourescent hi child @MoonlitSorrow delete your account
 
 ✦
