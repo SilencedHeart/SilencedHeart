@@ -34,6 +34,9 @@
 ...
 
 〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎〰︎
-@Directorwifies - fuh you bradar delete your account 
+
+@DIRECTOR-WIFIES - fuh you bradar delete your account @MisasLove - I hate you bradar delete your comment @PixelBrickz- delete your videos
+
+- reference guys don't ban me
 
 ✦
