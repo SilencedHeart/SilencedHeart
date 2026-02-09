@@ -38,5 +38,5 @@
 @DIRECTOR-WIFIES : hi son @MisasLove hi unc @PixelBrickz : hi unc @jakestuff hi son @pwnedbyskeet hi son @Flourescent hi child @MoonlitSorrow delete your account
 
 
-hey there ex! I know your reading this, why won't ya leave me be and let the past be the past? keep backtalking and I'll think your obsessed! 
+Follow these people up there they are so awesome
 ✦
