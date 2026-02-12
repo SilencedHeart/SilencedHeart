@@ -6,7 +6,7 @@
   ✦
 
   
-  ' 𝒃𝒆𝒄𝒂𝒖𝒔𝒆. 𝒊𝒇 𝒚𝒐𝒖 𝒄𝒂𝒍𝒍 𝒎𝒚 𝒏𝒂𝒎𝒆 𝒕𝒉𝒆𝒓𝒆 𝒘𝒊𝒍𝒍 𝒃𝒆 𝒏𝒐 𝒂𝒏𝒔𝒘𝒆𝒓.'
+  [![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=FCF6E6&width=435&lines=Goodbye%2C+Andrew...;One+Day+we+Wont+Stargaze+At+The+Rooftop+Anymore.;.....;)](https://git.io/typing-svg)
   
 ![image alt](Untitled1089_20260201022517.png) 
 
