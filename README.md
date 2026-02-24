@@ -38,7 +38,7 @@
 
 𝑊𝑎𝑛𝑡 𝑡𝑜 𝑖𝑛𝑡𝑒𝑟𝑎𝑐𝑡 𝑤𝑖𝑡ℎ 𝑚𝑒 𝑏𝑢𝑡 𝑡𝑜𝑜 𝑆ℎ𝑦? 𝑖𝑡'𝑠 𝑜𝑘𝑎𝑦! 𝑙𝑜𝑜𝑘 𝑎𝑡 𝑡ℎ𝑒 𝑡𝑒𝑥𝑡 𝑎𝑡 𝑡ℎ𝑒 𝑏𝑜𝑡𝑡𝑜𝑚! 
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=FCF6E6&width=435&lines=%2C+h!;Im+Never+Rude+To+New+People!+I+Dont+Care+If+I'm+Alone+or+Not!;.....;)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Playfair+Display&pause=1000&color=FCF6E6&width=435&lines=%I+Dont+Care+if+im+alone+or+not,;Im+Never+Rude+To+New+People!;.....;)](https://git.io/typing-svg)
 
 𝑡ℎ𝑜 𝐼 𝑚𝑎𝑦 𝑏𝑒 𝑠ℎ𝑦 𝑚𝑦𝑠𝑒𝑙𝑓! 
 
